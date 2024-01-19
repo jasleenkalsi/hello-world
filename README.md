@@ -2,5 +2,5 @@
 
 ## Its really fun to learn new things.
 
-### looking forward to explore more
+### looking forward to explore more projects.
 
